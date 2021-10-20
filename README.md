@@ -1,5 +1,1 @@
-writing to make a cool product
-
-please reach out!
-
-https://longtran.dev
+hello i am long i like ai bioinformatics and crypto
